@@ -1,1 +1,0 @@
-# jejakkaryakukelas6
